@@ -10,6 +10,6 @@
 
 ##### 🌄 I’m looking for fellow travellers to empower the people in need
 
-##### 📫 You reach me anytime from [LinkedIn](https://www.linkedin.com/in/mustafaoglu/)
+##### 📫 You reach me by [linkedin](https://www.linkedin.com/in/mustafaoglu/), [twitter](https://twitter.com/M_Mustafaoglu) or [e-mail](mailto:mustafasmustafaoglu@gmail.com) 
 
 ![be](https://user-images.githubusercontent.com/29121890/127785247-7c814b85-65d5-4f2c-9a81-a8b9eb7a8fee.png)
