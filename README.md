@@ -12,4 +12,3 @@
 
 #### 📫 You can reach me by [LinkedIn](https://www.linkedin.com/in/mustafaoglu/), [Twitter](https://twitter.com/M_Mustafaoglu) or [E-mail](mailto:mustafasmustafaoglu@gmail.com) 
 
-![be](https://user-images.githubusercontent.com/29121890/127785247-7c814b85-65d5-4f2c-9a81-a8b9eb7a8fee.png)
